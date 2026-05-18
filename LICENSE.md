@@ -1,4 +1,4 @@
-# 
+# elite deribit trading bot plugins is the best deribit trading bot plugins with price-monitoring and perpetual-trading. Safe, reliable, and optimized for CEX, DEX, and algorithmic
 
 
 
